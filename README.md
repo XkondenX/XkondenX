@@ -3,8 +3,6 @@
 ### Greetings (⌐■_■)
 
 ###      Nice To meet you From ID
-<div align="center">
-  📨contact me daniafandi70@gmail.com
 
 
 
